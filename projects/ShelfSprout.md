@@ -7,7 +7,7 @@
 
 **Target Learning Audience:** 
 
-  Book club organizers, avid readers, independent bookstore owners, and small business owners. The audience would also encapsulate women and non-binary folks since this community would function as a safe space for them. 
+  Book club organizers, avid readers, independent bookstore owners, and small business owners. The audience would also encompass women and non-binary folks since this community would function as a safe space for them. 
 
 **Identified Learning Need:**
 
